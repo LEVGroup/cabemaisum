@@ -7,15 +7,16 @@ Right now, LEV is thinking about something new. You know, it isn't that easy hav
 ### Do you have an idea and you want to share with us?
 > Well, this is some crazy idea I'm having right now. IF, ONLY IF, you have an BRILLIANT FUCKING IDEA, and you want to be HUMBLE AND NICE > enough to share with us, mailto -> cabemaisumcontato@gmail.com and we will analyze it. 
 
-  Hugs and Kudos, LEV.
-  1. Emanuel Morais
-  2. Luiz Nickel
-  3. Luis Gabriel
-  4. Vitor Meneses
+    Some thank you to:
+  * Professor Francisco Pinto @ Faculdade Ruy Barbosa
+  * IT Coordinator Ângela Reis @ Faculdade Ruy Barbosa
+  * Github lol
+  * Atom (fucking love ya)
+  * Snapchat for pure procastination
 
-  Some thank you to:
-  1. Professor Francisco Pinto @ Faculdade Ruy Barbosa
-  2. IT Coordinator Ângela Reis @ Faculdade Ruy Barbosa
-  3. Github lol
-  4. Atom (fucking love ya)
-  5. Snapchat for pure procastination
+
+  Hugs and Kudos, LEV.
+  * Emanuel Morais
+  * Luiz Nickel
+  * Luis Gabriel
+  * Vitor Meneses
